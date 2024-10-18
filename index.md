@@ -10,5 +10,5 @@
 
 ### The members
 - [Bill](https://goblamler.com/bill)
-- [Shelby](https://seabunny.online)
+- [Shelby](https://goblamler.com/shelby)
 - [Kit](https://en.pronouns.page/@kitproj)
