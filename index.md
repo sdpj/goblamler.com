@@ -7,6 +7,7 @@
 - [Bluesky](https://bsky.app/profile/goblamler.com)
 - [YouTube](https://youtube.com/@goblamlerpinaotrio)
 
+- [Store](https://seabunny.bgng.io)
 
 ### The Member
 - [Bill](https://goblamler.com/bill)
