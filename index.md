@@ -13,4 +13,4 @@
 ### The Member
 - [Bill](https://goblamler.com/bill)
 - [Shelby](https://goblamler.com/shelby)
-- [Kit](https://en.pronouns.page/@kitproj)
+- [Kit](https://kitproj.com/)
