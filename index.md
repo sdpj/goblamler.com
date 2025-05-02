@@ -12,5 +12,5 @@
 
 ### The Member
 - [Bill](https://goblamler.com/bill)
-- [Shelby](https://goblamler.com/shelby)
+- [Katie](https://goblamler.com/shelby)
 - [Kit](https://kitproj.com/)
