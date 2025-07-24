@@ -13,4 +13,8 @@
 ### The Member
 - [Bill](https://goblamler.com/bill)
 - [Katie](https://goblamler.com/shelby)
-- [Kit](https://kitproj.com/)
+- [Cheese The](https://cheeznation.cfd)
+- [Kit Projection](https://reject.sbs/)
+- [Larm Suchas](https://0x0ff.com)
+- [Ball](https://mybestmoments.christmas/@ball)
+- [Maddir](https://0004119.xyz)
